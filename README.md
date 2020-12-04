@@ -29,3 +29,5 @@ OilFlush - decent at making clients and just has fun and is a fun guy to dick ar
 failingclasses - Decent guy is learning java and is fun to play overwatch with owns a network pretty funny guy but is fat love you <3 no homo
 
 Dawson(Funkemunky) - Makes decent anticheats, very helpful helped me out a 'lot with making checks. Chill guy and is very respect-able.
+
+Itz_Lucky - Good Developer makes Meow anticheat I suggest buying it when it releases its actually pretty good
